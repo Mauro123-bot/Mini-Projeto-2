@@ -1,0 +1,1 @@
+# lei-geral-de-protecao-de-dados-lgpf
